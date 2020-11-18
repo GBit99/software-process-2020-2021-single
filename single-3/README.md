@@ -1,0 +1,1 @@
+Линк към Trello Board -> https://trello.com/b/nzmTlWNM
